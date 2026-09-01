@@ -42,8 +42,7 @@ To start my career as a **Software Engineer / Full Stack Developer** and contrib
 
 ### 📫 Connect With Me
 
-* 💼 LinkedIn: Add your LinkedIn profile link
-* 💻 GitHub: You're already here!
+* 💼 LinkedIn: www.linkedin.com/in/shirsa-roy-a3950a378
 
 ---
 
